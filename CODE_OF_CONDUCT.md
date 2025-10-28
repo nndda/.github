@@ -1,0 +1,2 @@
+- be nice
+- don't spam
